@@ -126,8 +126,8 @@ Aspiring Data Analyst
 
 ### Connect With Me
 
-🔗 LinkedIn: https://www.linkedin.com/in/YOUR-LINKEDIN-ID/
+LinkedIn:(https://www.linkedin.com/in/abhishekguddetwar/)
 
-💻 GitHub: https://github.com/YOUR-GITHUB-ID
+GitHub:(https://github.com/AbhishekGuddetwar13)
 
 ---
